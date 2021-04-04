@@ -1,7 +1,7 @@
 Introduction
 ============
 
-## Who is behing EQness?
+## Who is behind EQness?
 
 My name is Olga-Lucia Gamboa Arana, I am a neuroscientist with a PhD in Basic and Clinical Neurology.  
 I am passionate about human emotions and their consequences. That drove me to get a specialization in Emotional Education, get certified as a teacher of the mindfulness eating program MB_EAT and trained as a teacher of Mindfulness and Self Compassion and I am finalizing my studies in Psychology.  
